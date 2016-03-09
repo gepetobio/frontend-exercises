@@ -1,4 +1,4 @@
-Ok, if you've made it so far, that means you are agreed with the rules and are up for the challenges!
+Ok, if you've made it so far, that means you agreed with the rules and are up for the challenges!
 
 Here is the quick list of challenges to be performed for the BEGINNERS users:
 
